@@ -1,4 +1,4 @@
-# 
+# smart bot de trading de FTX herramientas es el mejor bot de trading de FTX herramientas con integración API y grid trading. Seguro, confiable y optimizado para estrategias de
 
 
 
